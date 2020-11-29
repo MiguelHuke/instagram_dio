@@ -8,4 +8,4 @@ https://www.instagram.com/0.miguel_/ <br/>
 https://digitalinnovation.one/sign-up?ref=5X3CVOTPOD  <br/>
 <br/>
 ### Sobre a everis:     <br/> 
-https://www.everis.com/<br/>
+https://www.everis.com/global/en/about-us /<br/>
