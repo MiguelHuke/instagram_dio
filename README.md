@@ -2,7 +2,7 @@
 Atividade do bootcamp "everis FullStack Developer", na plataforma Digital Innovation One, que tem como objetivo recriar a página inicial do Instagram.
 
 ### Meu instagram: <br/>
-https://www.instagram.com/0.miguel_/ <br/>
+https://www.instagram.com/miguelhuke/ <br/>
 <br/>
 ### Link da plataforma:  <br/>
 https://digitalinnovation.one/sign-up?ref=5X3CVOTPOD  <br/>
